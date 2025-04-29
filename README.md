@@ -1,2 +1,6 @@
-# Aviator---Master--analite
-Apresento a nova performance gratuita que vai te a judar.
+
+# Aviator Predictor PRO
+
+**Descrição:** Previsão de apostas Aviator, moda e estilo.  
+**Contato:** arturjrcossa@gmail.com  
+**Pagamento:** NIB 000100000103466058957  
